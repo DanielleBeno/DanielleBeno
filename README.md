@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Danielle
+- 👀 I’m currently looking for a Student position
+- 🌱 I’m currently - BS Industrial Engineering and Management| Second year 
+- 📫 How to reach me | LinkedIn: https://www.linkedin.com/in/danielle-benoish/
